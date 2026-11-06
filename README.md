@@ -48,8 +48,8 @@ Here are a few highlights from my work. I believe in learning by doing, and each
 I'm always open to collaborating on interesting projects or discussing new ideas. Feel free to reach out!
 
 - **GitHub:** [piyushkumarexe](https://github.com/piyushkumarexe)
-- **LinkedIn:** [Your LinkedIn Profile](https://www.linkedin.com/in/your-profile)
-- **Email:** [your.email@example.com](mailto:your.email@example.com)
+- **LinkedIn:** [LinkedIn Profile](https://www.linkedin.com/in/piyush-kumar-629862437?utm_source=share_via&utm_content=profile&utm_medium=member_android)
+- **Email:** [piyushpk811@gmail](piyushpk811@gmail.com)
 
 ---
 
